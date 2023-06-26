@@ -1,0 +1,3 @@
+-  Hi, I’m pikman3
+-  my prounouns are he/him
+-  i do game dev and programming stuffs
